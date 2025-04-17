@@ -1,6 +1,6 @@
 #I´m Isabelly Yenohi
 
-Sussumu0407/Sussumu0407 is a ✨ special ✨ repository because its README.md (this file) appears on your GitHub profile.
+Yenohi0407/Yenohi0407 is a ✨ special ✨ repository because its README.md (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
